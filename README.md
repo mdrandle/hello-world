@@ -11,4 +11,4 @@ Physicists: Uhhhh, sure NSF... we'll have a competitive transistor made out of C
 Both: Please issue the grant check before the 1st of the month so I can pay my rent!!!
 
 
-Cheers!
+Cheers! Preferably with Canadian beer.
